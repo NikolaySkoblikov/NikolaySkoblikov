@@ -1,4 +1,4 @@
-
+Be loyal to those who is loyal to you.
 
 <!---
 NikolaySkoblikov/NikolaySkoblikov is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
